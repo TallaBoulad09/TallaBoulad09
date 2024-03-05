@@ -2,7 +2,7 @@
 - 👀 I’m interested in the Sea and Space(Nature).
 - 🌱 I’m currently learning Full Stack Developing.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me :tallaboulad.shared@gmail.com
 - 😄 Pronouns: She
 - ⚡ Fun fact: Boba is my favourite drink.
 
